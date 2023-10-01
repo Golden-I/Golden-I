@@ -1,5 +1,5 @@
 ### Hi there 👋
-Experienced Operations and Software Project Manager | Expert in Remote Team Leadership | Certified in Scrum, Agile, and Project Management | Fluent in Multiple Languages | Seeking Software Project Management Roles
+Accomplished Operations and Software Project Manager | Proficient in Leading Remote, Cross-Functional Teams to Timely Success | Backed by Certifications in Scrum, Agile, and Project Management | Multilingual and Ready to Drive Global Team Excellence | Exploring Opportunities in Software Project Management. | Fluent in Multiple Languages | Seeking Software Project Management Roles
 
 Here are some ideas to get you started:
 
